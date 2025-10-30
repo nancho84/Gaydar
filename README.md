@@ -1,3 +1,3 @@
-        #### Gaydar the gay radar for gay people
+delete        #### Gaydar the gay radar for gay people
 
                 signed# coolmemes from UC
